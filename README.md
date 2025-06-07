@@ -34,6 +34,10 @@ More projects coming soon as I continue learning!
 
 ## 💬 Let's Connect
 
+- [LinkedIn](https://www.linkedin.com/in/tharusha-dilshan-76aa70353/)
+- [Telegram](https://t.me/Dark_Iuci)
+
 Feel free to reach out or follow along as I grow step by step.  
 This is just the beginning — thanks for visiting! 😊
+
 
